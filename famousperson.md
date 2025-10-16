@@ -1,6 +1,6 @@
 # Taylor Swift
 
-![TaylorSwift](https://pl.wikipedia.org/wiki/Plik:Taylor_Swift_at_the_2023_MTV_Video_Music_Awards_(3).png)
+![TaylorSwift](https://upload.wikimedia.org/wikipedia/commons/b/b1/Taylor_Swift_at_the_2023_MTV_Video_Music_Awards_%283%29.png)
 Taylor Alison Swift (ur. 13 grudnia 1989 w Reading) – amerykańska piosenkarka, kompozytorka, producentka muzyczna, multiinstrumentalistka, autorka tekstów i aktorka.
 
 Piosenki Swift oscylują wokół wielu gatunków muzycznych, m.in. country, synth popu, electropopu, popu, teen popu, indie folku, indie popu, chamber popu, indie rocka, soft rocka, pop-rocka, rocka, poezji śpiewanej i power popu[3][4][5][6][7][8][9][10][11][12][13][14][15][16].
